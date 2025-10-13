@@ -13,6 +13,8 @@
  <img align="center" alt="João-Csharp" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/cplusplus/cplusplus-original.svg" />
  <img align="center" alt="João-python" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/python/python-original.svg" />
  <img align="center" alt="João-JavaScript" height="30" width="40" src="https://cdn.jsdelivr.net/gh/devicons/devicon@latest/icons/javascript/javascript-original.svg" />
+ <img align="right" alt="João-Sonic" height=55 width=90 src="https://i.imgur.com/8iXqPJx.gif">
+
                 
           
 </div>
@@ -26,7 +28,7 @@
  
 </div>
 
-- 💻 Focado em Programaão liguagem C+ & C++
+- 💻 Focado em Programação liguagem C++ & Phyton
 - 👨‍💻 Estudante em Técnico em Informática
 - 📫 Contato: joao08almeida07@gmail.com
 - ⚡ Algumas das minhas habilidades estão ligadas a Infraestutura e Hardware
