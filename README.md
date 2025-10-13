@@ -18,6 +18,8 @@
 
 
 <div>
+
+ 
  <a href="https://github.com/joaoalmeida07">
  <img height="180em" src="https://github-readme-stats.vercel.app/api?username=joaoalmeida07&show_icons=true&hide=contribs,prs&cache_seconds=86400&theme=algolia" />
  <img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=joaoalmeida07&layout=compact&langs_count=16&theme=algolia"/>
@@ -33,8 +35,14 @@
  <img align="right" alt="João-Sonic" height=55 width=90 src="https://i.imgur.com/8iXqPJx.gif">
 
                 
-#
 
+
+
+
+
+
+##
+ <h3>* GitHub Stats *</h3>
 <picture align="center">
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/joaoalmeida07/joaoalmeida07/output/github-contribution-grid-snake-dark.svg">
   <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/joaoalmeida07/joaoalmeida07/output/github-contribution-grid-snake-dark.svg">
