@@ -1,4 +1,18 @@
 ## Olá, eu sou o João.
+##👨‍💻 𝙅𝙤𝙖̃𝙤 𝙑𝙞𝙘𝙩𝙤𝙧 | 𝙎𝙪𝙥𝙤𝙧𝙩𝙚 & 𝙄𝙣𝙛𝙧𝙖𝙚𝙨𝙩𝙧𝙪𝙩𝙪𝙧𝙖
+𝘼𝙩𝙪𝙖𝙘̧𝙖̃𝙤 𝘼𝙩𝙪𝙖𝙡:
+𝙏𝙚́𝙘𝙣𝙞𝙘𝙤 𝙙𝙚 𝙄𝙣𝙛𝙤𝙧𝙢𝙖́𝙩𝙞𝙘𝙖 𝘼𝙪𝙩𝙤̂𝙣𝙤𝙢𝙤: 𝙈𝙤𝙣𝙩𝙖𝙜𝙚𝙢, 𝙢𝙖𝙣𝙪𝙩𝙚𝙣𝙘̧𝙖̃𝙤 𝙙𝙚 𝙝𝙖𝙧𝙙𝙬𝙖𝙧𝙚, 𝙪𝙥𝙜𝙧𝙖𝙙𝙚𝙨 (𝙎𝙎𝘿/𝙍𝘼𝙈) 𝙚 𝙙𝙞𝙖𝙜𝙣𝙤́𝙨𝙩𝙞𝙘𝙤 𝙙𝙚 𝙙𝙚𝙨𝙠𝙩𝙤𝙥𝙨/𝙨𝙚𝙧𝙫𝙞𝙙𝙤𝙧𝙚𝙨.
+𝙎𝙞𝙨𝙩𝙚𝙢𝙖𝙨: 𝙄𝙣𝙨𝙩𝙖𝙡𝙖𝙘̧𝙖̃𝙤 𝙚 𝙘𝙤𝙣𝙛𝙞𝙜𝙪𝙧𝙖𝙘̧𝙖̃𝙤 𝙙𝙚 𝙒𝙞𝙣𝙙𝙤𝙬𝙨 𝙚 𝙇𝙞𝙣𝙪𝙭.
+𝙍𝙚𝙙𝙚𝙨: 𝘾𝙧𝙞𝙢𝙥𝙖𝙜𝙚𝙢 𝙙𝙚 𝙘𝙖𝙗𝙤𝙨 (𝙏𝟱𝟲𝟴𝘼/𝘽) 𝙚 𝙘𝙤𝙣𝙛𝙞𝙜𝙪𝙧𝙖𝙘̧𝙖̃𝙤 𝙙𝙚 𝙞𝙣𝙛𝙧𝙖𝙚𝙨𝙩𝙧𝙪𝙩𝙪𝙧𝙖 𝙛𝙞́𝙨𝙞𝙘𝙖 𝙚 𝙒𝙞-𝙁𝙞.
+𝙁𝙤𝙧𝙢𝙖𝙘̧𝙖̃𝙤 𝙚 𝘾𝙚𝙧𝙩𝙞𝙛𝙞𝙘𝙖𝙘̧𝙤̃𝙚𝙨:
+𝙏𝙚́𝙘𝙣𝙞𝙘𝙤 𝙚𝙢 𝙄𝙣𝙛𝙤𝙧𝙢𝙖́𝙩𝙞𝙘𝙖: 𝙎𝙀𝙉𝘼𝘾 𝙏𝙖𝙩𝙪𝙖𝙥𝙚́ (𝘾𝙪𝙧𝙨𝙖𝙣𝙙𝙤).
+𝘾𝙤𝙢𝙥𝙏𝙄𝘼 𝘼+: 𝙎𝙪𝙥𝙤𝙧𝙩𝙚 𝙏𝙚́𝙘𝙣𝙞𝙘𝙤 (𝙀𝙢 𝙥𝙧𝙤𝙜𝙧𝙚𝙨𝙨𝙤).
+𝙋𝙮𝙩𝙝𝙤𝙣 (𝙁𝙄𝘼𝙋) & 𝘾𝙞𝙨𝙘𝙤 𝙋𝙖𝙘𝙠𝙚𝙩 𝙏𝙧𝙖𝙘𝙚𝙧: 𝙁𝙤𝙧𝙢𝙖𝙙𝙤.
+𝙎𝙠𝙞𝙡𝙡𝙨 𝙙𝙚 𝙋𝙧𝙤𝙜𝙧𝙖𝙢𝙖𝙘̧𝙖̃𝙤:
+𝙇𝙤́𝙜𝙞𝙘𝙖 𝙙𝙚 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙖𝙘̧𝙖̃𝙤 𝙘𝙤𝙢 𝙛𝙤𝙘𝙤 𝙞𝙣𝙞𝙘𝙞𝙖𝙡 𝙚𝙢 𝙋𝙮𝙩𝙝𝙤𝙣, 𝙅𝙖𝙫𝙖𝙎𝙘𝙧𝙞𝙥𝙩 𝙚 𝘾# (𝘼𝙧𝙙𝙪𝙞𝙣𝙤).
+𝙊𝙗𝙟𝙚𝙩𝙞𝙫𝙤: 𝙀𝙨𝙩𝙖́𝙜𝙞𝙤 𝙚𝙢 𝙎𝙪𝙥𝙤𝙧𝙩𝙚 𝙏𝙚́𝙘𝙣𝙞𝙘𝙤 𝙤𝙪 𝙄𝙣𝙛𝙧𝙖𝙚𝙨𝙩𝙧𝙪𝙩𝙪𝙧𝙖 𝙙𝙚 𝙍𝙚𝙙𝙚𝙨𝙊𝙡𝙖́
+
+
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/João Victor Almeida) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:joao08almeida07@gmail.com) 
 
@@ -10,7 +24,8 @@
 <picture align="center">
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/joaoalmeida07/joaoalmeida07/output/github-contribution-grid-snake-dark.svg">
   <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/joaoalmeida07/joaoalmeida07/output/github-contribution-grid-snake-dark.svg">
-
+  <img align="center" alt="github contribution grid snake animation" src="https://raw.githubusercontent.com/joaoalmeida07/joaoalmeida07/output/github-contribution-grid-snake.svg">
+</picture>
 
 <div>
  
@@ -36,7 +51,3 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=joaoalmeida07&icon=0&color=0)](https://visitcount.itsvg.in)
-
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-# 💫 About Me:
-Experiência Profissional (Técnica)<br>Atuo como Técnico de Informática Autônomo desde 2025, com foco em:<br><br><br>Manutenção e Hardware: Realização de montagem completa, limpeza técnica preventiva e corretiva, além de diagnóstico de falhas em desktops e servidores de pequeno porte.<br><br><br>Otimização de Desempenho: Execução de upgrades de hardware, como substituição de SSDs, memórias RAM e processadores, além de clonagem de discos.<br><br><br>Sistemas Operacionais: Instalação, atualização e configuração de sistemas Windows e distribuições Linux (como Linux Mint), incluindo drivers específicos.<br><br><br>Infraestrutura de Redes: Instalação e crimpagem de cabos de rede (padrões T568A e T568B), garantindo conectividade em residências e pequenos escritórios.<br><br>🎓 Formação Acadêmica<br><br>Técnico em Informática: Cursando no Senac Tatuapé (Previsão: 06/2027).<br><br><br>CompTIA A+ (Suporte Técnico): Cursando via Coursera (Previsão: 04/2026).<br><br>📜 Certificações e Cursos Extras<br><br>Python (Nano Course): Formado pela FIAP.<br><br><br>Cisco Packet Tracer: Formado pela Cisco Networking Academy.<br><br>💻 Habilidades Técnicas<br>Infraestrutura e Hardware<br>Montagem e diagnóstico de computadores.<br><br>Configuração de infraestrutura de rede, switches básicos e modems Wi-Fi.<br><br>Conhecimento prático na plataforma Cisco.<br><br>Programação e Desenvolvimento<br>Domínio de Lógica de Programação.<br><br>Conhecimentos em Python, JavaScript e C# (aplicado a Arduino IDE).<br><br>🎯 Objetivo<br>Estudante de TI em busca da primeira oportunidade de estágio em suporte técnico ou infraestrutura de redes.
